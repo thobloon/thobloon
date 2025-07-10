@@ -20,4 +20,4 @@ I hold a diploma in Video Game Design & Development from Toronto Film School, wh
 
 ---
 
-[LinkedIn](www.linkedin.com/in/thobloon) • [Twitter](https://twitter.com/thobloon)
+[LinkedIn](https://www.linkedin.com/in/thobloon/) • [Twitter](https://twitter.com/thobloon)
